@@ -1,2 +1,2 @@
-# Sofi-Martin
-Wedding Sofi y Martin
+# Wedding
+Wedding Invitation
